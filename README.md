@@ -6,4 +6,4 @@
 
 💞️ I'm looking for cooperation in game development projects at different levels
 
-📫 reach me -> website : mrbaz1997.github.io email: edris.baz@gmail.com linkedIn: www.linkedin.com/in/edris-baz-358388102
+📫 reach me -> website : www.mrbaz1997.github.io email: edris.baz@gmail.com linkedIn: www.linkedin.com/in/edris-baz-358388102
