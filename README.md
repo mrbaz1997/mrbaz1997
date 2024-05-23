@@ -2,7 +2,7 @@
 
 👀 I’m interested in Game design and development
 
-🌱 I’m currently working in Medrick Games company as unity developer and I'm trying hard to learn more and more
+🌱 I’m currently working as a freelance unity developer and I'm trying hard to learn more and more
 
 💞️ I'm looking for cooperation in game development projects at different levels
 
