@@ -3,6 +3,7 @@
 👀 I’m interested in Game design and development
 
 🌱 I’m currently working as a freelance unity developer and I'm trying hard to learn more and more
+my projects are private so you can't see them
 
 💞️ I'm looking for cooperation in game development projects at different levels
 
